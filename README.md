@@ -1,1 +1,1 @@
-# Hello QEs - welcome to Wednesday!
+# Hello QEs - happy Wednesday!
